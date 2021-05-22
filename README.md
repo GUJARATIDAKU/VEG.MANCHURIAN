@@ -1,1 +1,1 @@
-# VEG.MANCHURIAN
+# Veg Manchurian Recipe
